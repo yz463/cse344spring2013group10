@@ -1,0 +1,2 @@
+> I am junior student in Computer Engineering department.In primary school, I wanted to be an archaeologist. But I give up this dream in high school and than being a computer engineer was my dream so I am in here. After graduating from school, I will build my own company.
+> > I like playing violin. I want to improve myself on playing violin. In my free time I like watching movies and reading books.

@@ -1,0 +1,2 @@
+> I'm Öznur SALCIOĞLU.  I am twenty-two years old and  I'm student  Computer Engineering in   Marmara Univercity since 2009. And I graduated from Çınarcık High School .
+> Çınarcık is district of Yalova.I was born in YALOVA but my family are from KASTAMONU. I like listening music and reading book especially novels.
